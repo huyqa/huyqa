@@ -2,7 +2,7 @@
 - My Website is: https://huyqa-home.com
 - My Channel Youtube: https://www.youtube.com/channel/UCpssyhEba9PePIJnAyvbVOw 
 - 👀 I’m interested in System, Network, Securtiy.
-- 🌱 I’m currently working at Binh Duong Province.
+- 🌱 I’m currently working at Tan Binh
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me, you can connect with us: https://huyqa-home.com
 
